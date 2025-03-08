@@ -9,4 +9,5 @@ Estou em transição de carreira para a área da programação, trazendo habilid
 Seguem minhas principais alternativas de contato para que possamos nos comunicar.
 
 Telefone: (22) 99202-0690 
+
 Email: nubiosantos333@gmail.com
